@@ -1,1 +1,0 @@
-# Xanyhub-Naw.2022-freescriptbf
